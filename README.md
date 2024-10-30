@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hari-uwu
+- 👋 Hi, I’m Hari
 - 👀 I’m interested to learn how this "coding" thing works 
 - 🌱 I’m currently AI
 - 💞️ I’m looking to collaborate on anything really
